@@ -67,10 +67,14 @@ I want to see the ocean, and I want him to love someone else, and I want to have
 
 ### Tagisimo, X
 
-Hello.  
-Hello.  
-I'm back.  
-I'm back.  
+Hello  
+
+(Hello)  
+
+I'm back  
+
+(I'm back)  
+
 I'll go back there again soon to further adventure, but now, the sea was blue  
 Got woken by the circle of the dawn sun on the white of the closet door twice, once it was pink, the next time gold  
 A few times I got up at seven, hopped into swim stuff, down the trail to beach and swam, all to myself, no one but the little schools of transparent fish to look at with my snorkel mask, and the tube let me stay face down and not miss anything and the water from the underside.  
