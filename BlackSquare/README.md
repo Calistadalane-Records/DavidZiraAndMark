@@ -101,43 +101,92 @@ quiet in your body and really with the moment that you are in
 just living  
 appreciating and feeling a quiet part of it  
 
-And walking up the path, seeing the butterflies about their business, going here and there.  
+And walking up the path  
+seeing the butterflies about their business  
+going here and there  
 
-Walking up with a lot more respect, quietly stooping to pick up trash on the trail that so does not belong there its almost the punchline to some bad joke.
-I came back to some part of myself who had run away cause my emotional life was a little too desperate there for a moment
-But I'm more strong now. I lived it and I live.  
+Walking up with a lot more respect  
+quietly stooping to pick up trash on the trail that so does not belong there its almost the punchline to some bad joke  
+
+I came back to some part of myself who had run away cause my emotional life was a little too desperate there for a moment  
+
+But I'm more strong now  
+
+I lived it and I live  
 
 I'm happy and lucky and appreciative and…  
 
 Anyway.  
 
-Had a quick, funny last minute adventure with a saxophonist, who had an older brother who fell in love with my friend and roommate Julie, and so that's why we return there soon. The saxophonist kept complaining that I had too much manic energy, which was irritating, even though I knew he was right.  
+Had a quick, funny last minute adventure with a saxophonist  
+who had an older brother who fell in love with my friend and roommate Julie  
+and so that's why we return there soon
 
-It takes a while to settle down and be normal after a lot of stress.  
+The saxophonist kept complaining that I had too much manic energy  
+which was irritating  
+even though I knew he was right  
 
-And so now of course I am determined to be the coolest thing in the sea the next time I see him. Should be fun, another role to dance around in, but mostly I'll just be happy to swim again. And maybe sit on the beach next to a fire, and write messages in the sand that no one can see and the tide will erase later.  
+It takes a while to settle down and be normal after a lot of stress  
 
-How romantic.  
+And so now of course I am determined to be the coolest thing in the sea the next time I see him  
 
-I took the train to Genova and then a boat to the island of Sardinia. The train lasted all night, then we had all day to trudge around Genova, and then the boat at night, and then the morning, yes, genuine seagulls coming to greet the boat when we landed. And the island coming up, and the water deep, impossible blue, and you just get lost in the texture of the wake and stupid me, no creme on the legs and so then I have like a 3rd degree red frontal sock burn.  
+Should be fun, another role to dance around in  
+but mostly I'll just be happy to swim again  
 
-I look so the German tourist.  
+And maybe sit on the beach next to a fire  
+and write messages in the sand that no one can see and the tide will erase later  
 
-And they did not go away for the whole trip. It was my personal goal, but nope, there they are, even now. I'm kind of unevenly brown everywhere, but, so what?  
+How romantic  
 
-And then the boat back, but during the whole damn day surrounded by lots of completely spoiled rich Italian children whose parents just try and rationalize them out of bad moods until you are not sure who is whining more, the parents or the kids (who just continue to move determinedly in the direction they want).  
+I took the train to Genova and then a boat to the island of Sardinia  
 
-But sailing into Genova was fun too.  
+The train lasted all night  
+then we had all day to trudge around Genova  
+and then the boat at night  
+and then the morning  
+yes  
+genuine seagulls coming to greet the boat when we landed  
 
-So now I've done the Columbus thing, sans Indians, felt the miles of the true distance I'm travelling, and I found out when I got home that the plane was the same price and it took 2 hours.  
+And the island coming up  
+and the water deep  
+impossible blue  
+and you just get lost in the texture of the wake  
+and  
+stupid me  
+no creme on the legs and so then I have like a 3rd degree red frontal sock burn  
 
-So.  
+I look so the German tourist  
 
-Next time.  
+And they did not go away for the whole trip  
 
-Tag is imo.  
+It was my personal goal  
+but nope  
+there they are  
+even now
 
-X.
+I'm kind of unevenly brown everywhere  
+but  
+so what?  
+
+And then the boat back  
+but during the whole damn day surrounded by lots of completely spoiled rich Italian children whose parents just try and rationalize them out of bad moods until you are not sure who is whining more, the parents or the kids (who just continue to move determinedly in the direction they want)  
+
+But sailing into Genova was fun too  
+
+So now I've done the Columbus thing  
+sans Indians  
+felt the miles of the true distance I'm travelling  
+and I found out when I got home that the plane was the same price and it took 2 hours  
+
+So  
+
+Next time  
+
+Tag  
+is  
+imo  
+
+X
 
 ### Zoe (No. 1)
 
