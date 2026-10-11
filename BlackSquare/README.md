@@ -24,8 +24,6 @@ Release: 2021
 
 ### Kind Of Talking/Never Been
 
-```text
-
 Not really talking, but words come out.
 
 You are saying things, but they don’t matter.
@@ -63,7 +61,6 @@ I am replaceable. There is a comfort in that.
 I have never seen the ocean. I want to see it once, but I am scared.
 
 I want to see the ocean, and I want him to love someone else, and I want to have never ever been.
-```
 
 ### Tagisimo, X
 
