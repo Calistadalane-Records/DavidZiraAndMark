@@ -4,15 +4,15 @@
 
 <div align="center">
 
-  ![](TERRORCAT.png)
+  ![](DavidZiraAndMark.png)
 
   ***
 
   <br/>
 
-  [![](./BlackSquare/TERRORCAT-256x256.png)](./TERRORCAT/README.md)
+  [![](./BlackSquare/BlackSquare-256x256.png)](./BlackSquare/README.md)
 
-  <h3>TERRORCAT (2021)</h3>
+  <h3>Black Square (2021)</h3>
 
 </div>
 
