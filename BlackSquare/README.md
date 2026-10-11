@@ -81,15 +81,25 @@ Got woken by the circle of the dawn sun on the white of the closet door twice
 once it was pink  
 the next time gold  
 
-A few times I got up at seven, hopped into swim stuff, down the trail to beach and swam, all to myself, no one but the little schools of transparent fish to look at with my snorkel mask, and the tube let me stay face down and not miss anything and the water from the underside.  
+A few times I got up at seven  
+hopped into swim stuff  
+down the trail to beach and swam, all to myself  
+no one but the little schools of transparent fish to look at with my snorkel mask  
+and the tube let me stay face down and not miss anything and the water from the underside.  
 
-And the way the sand shifts as you get closer to where the waves break the pattern.  
+And the way the sand shifts as you get closer to where the waves break the pattern  
 
-The solidity and texture of water.  
+The solidity and texture of water  
 
-The volume.  
+The volume  
 
-The quiet of getting out on the beach after swimming along it and back in the morning breeze, the sun on your shoulders, your feet really planted, you really stand on the earth, quiet in your body and really with the moment that you are in, just living, appreciating and feeling a quiet part of it.  
+The quiet of getting out on the beach after swimming along it and back in the morning breeze  
+the sun on your shoulders  
+your feet really planted  
+you really stand on the earth  
+quiet in your body and really with the moment that you are in  
+just living  
+appreciating and feeling a quiet part of it  
 
 And walking up the path, seeing the butterflies about their business, going here and there.  
 
